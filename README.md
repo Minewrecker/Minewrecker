@@ -1,1 +1,1 @@
-🍣 - https://linktr.ee/NocturnalSushi
+🍣 - [Links.](https://linktr.ee/NocturnalSushi)
